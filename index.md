@@ -9,9 +9,7 @@ GWU Law School
 2000 H St NW  
 Washington, DC 20052  
 (202) 503-4132   
-
 [dbraman@law.gwu.edu](mailto:dbraman@law.gwu.edu)
-
 
 ### EMPLOYMENT  
 
