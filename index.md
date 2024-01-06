@@ -2,71 +2,67 @@
 layout: cv
 title: Donald Braman's CV
 ---
-# DONALD BRAMAN
+# DONALD BRAMAN 
+GWU Law School 
 
+2000 H St NW 
 
-    GWU Law School 
+Washington, DC 20052 
 
+(202) 503-4132  
 
-    2000 H St NW \
-Washington, DC 20052
-
-
-    (202) 503-4132 
-
-
-    [dbraman@law.gwu.edu](mailto:dbraman@law.gwu.edu)
+[dbraman@law.gwu.edu](mailto:dbraman@law.gwu.edu)
 
 
 ### EMPLOYMENT	
 
 **George Washington University Law School**
 
-Associate Professor** 	**2006-present
+Associate Professor: 2006-present
 
 **The Justice Innovation Lab**
 
-Director of Science & Policy** 	**2020-present
+Director of Science & Policy: 2020-present
 
 **The Lab @ DC**
 
-Senior Social Scientist** 	**2016-2020
+Senior Social Scientist: 2016-2020
 
 **University of Chicago Law School**
 
-Visiting Professor** 	**2009
+Visiting Professor: 2009
 
 **Yale Law School**
 
-Irving S. Ribicoff Fellow** 	**2005-2006
+Irving S. Ribicoff Fellow: 2005-2006
 
 
 ### EDUCATION
 
 **Yale Law School**
 
-J.D.** 	**2005
+J.D.: 2005
 
 **Yale University Graduate School of Arts and Sciences **
 
-Ph.D., Anthropology (with honors)** 	**2002
+Ph.D., Anthropology (with honors): 2002
 
-**Columbia College	**
+**Columbia College**
 
-B.A. (with honors)** 	**1994
+B.A. (with honors): 1994
 
 
 ### RELEVANT APPOINTMENTS	
 
-Justice Innovation Lab, Director of Science & Policy	2019-present
+Justice Innovation Lab, Director of Science & Policy: 2019-present
 
-DC Justice Lab, Board Chair	2020-present
+DC Justice Lab, Board Chair: 2020-2023
 
-DC Comprehensive Homicide Elimination Task Force, Research Subcommittee	2018-2020
+DC Comprehensive Homicide Elimination Task Force, Research Subcommittee:	2018-2020
 
-DC Criminal Code Reform Commission, Advisory Member	2016-2020 
+DC Criminal Code Reform Commission, Advisory Member: 2016-2020 
 
-DC Sentencing and Criminal Code Reform Commission	2012-2016 
+DC Sentencing and Criminal Code Reform Commission: 2012-2016 
 
 
         **<span style="text-decoration:underline;">GRANTS, AWARDS AND FELLOWSHIPS	</span>**
