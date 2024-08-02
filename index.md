@@ -74,7 +74,7 @@ _The Moral Economy of Incarceration_, _in _Criminal Justice (E. Judah & M. Bryan
 _Families of Prisoners_, _in _Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)  
 
 ### JOURNAL PUBLICATIONS  
-_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)
+_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024) (with Aaron Regunberg, Cindy Cho, and David Arkush)
 _Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)  
 _Geoengineering and Climate Change Polarization: Testing a Two-channel Model of Science Communication_, Aɴɴ. Aᴍ. Aᴄᴀᴅ. Pᴏʟ. & Sᴏᴄ. Sᴄɪ. (2015) (with Dan M. Kahan, Hank C. Jenkins-Smith, Tor Tarantola & Carol L Silva)  
 _The Polarizing Impact of Science Literacy and Numeracy on Perceived Climate Change Risks_, Nᴀᴛ. Cʟɪᴍ. Cʜɴɢ. (2013) (with Dan M. Kahan, Ellen Peters, Maggie Wittlin, Paul Slovic, Lisa Ouelette & Gred Mandel)  
