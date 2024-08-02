@@ -50,7 +50,7 @@ DC Sentencing and Criminal Code Reform Commission: 2012-2016
 
 ### GRANTS, AWARDS AND FELLOWSHIPS
 
-GW Equity Institute Fellow 2021-present 
+GW Equity Institute Fellow 2021-present  
 Irving S. Ribicoff Fellowship, Yale Law School 2005-2006  
 National Science Foundation Major Grant (for National Risk and Culture Survey) 2003-2005  
 National Institute of Justice Major Grant (for research on criminal sanctions) 1999-2002  
