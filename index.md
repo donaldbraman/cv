@@ -1,6 +1,9 @@
 ---
 layout: cv
 title: Donald Braman's CV
+cache-control: no-cache
+expires: 0
+pragma: no-cache
 ---
 # DONALD BRAMAN 
 
