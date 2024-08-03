@@ -81,7 +81,7 @@ _Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024
 _Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)  
 _Geoengineering and Climate Change Polarization: Testing a Two-channel Model of Science Communication_, Aɴɴ. Aᴍ. Aᴄᴀᴅ. Pᴏʟ. & Sᴏᴄ. Sᴄɪ. (2015) (with Dan M. Kahan, Hank C. Jenkins-Smith, Tor Tarantola & Carol L Silva)  
 _The Polarizing Impact of Science Literacy and Numeracy on Perceived Climate Change Risks_, Nᴀᴛ. Cʟɪᴍ. Cʜɴɢ. (2013) (with Dan M. Kahan, Ellen Peters, Maggie Wittlin, Paul Slovic, Lisa Ouelette & Gred Mandel)  
-_Judicial Backlash or Just Backlash? _Evidence _from a National Experiment_, 112 Cᴏʟᴜᴍ. L. Rᴇᴠ. (2012) (with David Fontana)  
+_Judicial Backlash or Just Backlash? Evidence from a National Experiment_, 112 Cᴏʟᴜᴍ. L. Rᴇᴠ. (2012) (with David Fontana)  
 ‘_They Saw a Protest’: Cognitive Illiberalism and the Speech-Conduct Distinction_, 64 Stan. L. Rᴇᴠ. (2012) (with Dan Kahan & David Hoffman)  
 _A Core of Agreement_, 77 Chi. L. Rev. 1655 (2010) (with Dan Kahan & David Hoffman)  
 _Some Realism about Punishment Naturalism_, 77 Chi. L. Rev. 1633 (2010) (with Dan Kahan & David Hoffman)  
