@@ -37,7 +37,7 @@ Irving S. Ribicoff Fellow: 2005-2006
 **Yale Law School**  
 J.D. 2005
 
-**Yale University Graduate School of Arts and Sciences **  
+**Yale University Graduate School of Arts and Sciences**  
 Ph.D., Anthropology (with honors) 2002
 
 **Columbia College**  
