@@ -64,7 +64,6 @@ Mellon Fellowship for Anthropological Research 1995
 
 ### BOOKS  
 _Doing Time on the Outside: Incarceration and Family Life in Urban America_ (2004)  
-_Up Against the Wall: Policing Under Pressure in Modern America_ (forthcoming)
 
 ### BOOK CHAPTERS  
 
