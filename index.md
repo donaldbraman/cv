@@ -63,7 +63,7 @@ Yale Presidential Fellow 1997
 Mellon Fellowship for Anthropological Research 1995  
 
 ### BOOKS  
-_Doing Time on the Outside: Incarceration and Family Life in Urban America_ (2004)  
+[_Doing Time on the Outside: Incarceration and Family Life in Urban America_ (2004)](https://www.google.com/books/edition/Doing_Time_on_the_Outside/wkY_DwAAQBAJ?hl=en&gbpv=0&kptab=getbook)  
 
 ### BOOK CHAPTERS  
 [_Overcoming the Fear of Guns, the Fear of Gun Control, and the Fear of Cultural Politics_, _in_ Gᴜɴꜱ ᴀɴᴅ ᴛʜᴇ Lᴀᴡ (2015)](https://papers.ssrn.com/abstract=2103759) (with Dan M. Kahan & John Gastil)  
