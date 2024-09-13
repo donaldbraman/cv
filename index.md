@@ -68,7 +68,7 @@ Doing Time on the Outside: Incarceration and Family Life in Urban America (2004)
 Up Against the Wall: Policing Under Pressure in Modern America (forthcoming)
 
 ### BOOK CHAPTERS 
-_Overcoming the Fear of Guns, the Fear of Gun Control, and the Fear of Cultural Politics_, _in_ Gᴜɴꜱ ᴀɴᴅ ᴛʜᴇ Lᴀᴡ (2015) (with Dan M Kahan & John Gastil)  
+[_Overcoming the Fear of Guns, the Fear of Gun Control, and the Fear of Cultural Politics_, _in_ Gᴜɴꜱ ᴀɴᴅ ᴛʜᴇ Lᴀᴡ (2015) (with Dan M Kahan & John Gastil)](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2103759)  
 _Children and Incarceration_, _in_ The Children of Incarcerated Parents: Developmental and Clinical Outcomes (Yvette R. Harris, ed. 2009)  
 _Legal Realism as Psychological and Cultural (not Political) Realism_, _in_ How Does Law Know? (Austin Sarat ed., 2005) (with Dan Kahan)  
 _A Cultural Critique of Gun Litigation_, _in_ Suing the Gun Industry (Timothy Lytton, ed. 2005) (with Dan Kahan & John Gastil)  
