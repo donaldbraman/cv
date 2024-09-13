@@ -77,7 +77,7 @@ _A Cultural Critique of Gun Litigation_, _in_ Suing the Gun Industry (Timothy Ly
 
 _From One Generation to the Next_, _in_ Prisoners Once Removed (Jeremy Travis & Michelle Waul eds., 2004) (with Jenifer Wood)  
 
-[_The Moral Economy of Incarceration_, _in_ Criminal Justice (E. Judah & M. Bryant eds., 2004)](https://papers.ssrn.com/abstract=571382)  
+[_Families and The Moral Economy of Incarceration_, _in_ Criminal Justice (E. Judah & M. Bryant eds., 2004)](https://papers.ssrn.com/abstract=571382)  
 
 _Families of Prisoners_, _in_ Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)  
 
