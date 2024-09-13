@@ -71,7 +71,7 @@ Mellon Fellowship for Anthropological Research 1995
 [_A Cultural Critique of Gun Litigation_, _in_ Suing the Gun Industry (Timothy Lytton, ed. 2005)](https://pure.psu.edu/en/publications/a-cultural-critique-of-gun-litigation) (with Dan Kahan & John Gastil)  
 [_From One Generation to the Next_](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=4955785), _in_ [Prisoners Once Removed](https://webarchive.urban.org/publications/210900.html) (Jeremy Travis & Michelle Waul eds., 2004) (with Jenifer Wood)  
 [_Families and The Moral Economy of Incarceration_, _in_ Criminal Justice (E. Judah & M. Bryant eds., 2004)](https://papers.ssrn.com/abstract=571382)  
-[_Families of Prisoners_, _in_ Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)](https://thenewpress.com/books/invisible-punishment)  
+[_Families of Prisoners_, _in_ Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)](https://papers.ssrn.com/abstract=4955815)  
 
 ### JOURNAL PUBLICATIONS  
 [_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)]() (with Aaron Regunberg, Cindy Cho, and David Arkush)  
