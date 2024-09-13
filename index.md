@@ -67,6 +67,7 @@ _Doing Time on the Outside: Incarceration and Family Life in Urban America_ (200
 _Up Against the Wall: Policing Under Pressure in Modern America_ (forthcoming)
 
 ### BOOK CHAPTERS  
+
 [_Overcoming the Fear of Guns, the Fear of Gun Control, and the Fear of Cultural Politics_, _in_ Gᴜɴꜱ ᴀɴᴅ ᴛʜᴇ Lᴀᴡ (2015)](https://papers.ssrn.com/abstract=2103759) (with Dan M. Kahan & John Gastil)  
 
 _Children and Incarceration_, _in_ The Children of Incarcerated Parents: Developmental and Clinical Outcomes (Yvette R. Harris, ed. 2009)  
