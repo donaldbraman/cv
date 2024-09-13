@@ -67,15 +67,14 @@ _Doing Time on the Outside: Incarceration and Family Life in Urban America_ (200
 
 ### BOOK CHAPTERS  
 [_Overcoming the Fear of Guns, the Fear of Gun Control, and the Fear of Cultural Politics_, _in_ Gᴜɴꜱ ᴀɴᴅ ᴛʜᴇ Lᴀᴡ (2015)](https://papers.ssrn.com/abstract=2103759) (with Dan M. Kahan & John Gastil)  
-_Children and Incarceration_, _in_ The Children of Incarcerated Parents: Developmental and Clinical Outcomes (Yvette R. Harris, ed. 2009)  
 [_Legal Realism as Psychological and Cultural (not Political) Realism_, _in_ How Does Law Know? (Austin Sarat ed., 2005)](https://papers.ssrn.com/abstract=1504365) (with Dan Kahan)  
-_A Cultural Critique of Gun Litigation_, _in_ Suing the Gun Industry (Timothy Lytton, ed. 2005) (with Dan Kahan & John Gastil)  
-_From One Generation to the Next_, _in_ Prisoners Once Removed (Jeremy Travis & Michelle Waul eds., 2004) (with Jenifer Wood)  
+[_A Cultural Critique of Gun Litigation_, _in_ Suing the Gun Industry (Timothy Lytton, ed. 2005)](https://pure.psu.edu/en/publications/a-cultural-critique-of-gun-litigation) (with Dan Kahan & John Gastil)  
+[_From One Generation to the Next_](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=4955785), _in_ [Prisoners Once Removed](https://webarchive.urban.org/publications/210900.html) (Jeremy Travis & Michelle Waul eds., 2004) (with Jenifer Wood)  
 [_Families and The Moral Economy of Incarceration_, _in_ Criminal Justice (E. Judah & M. Bryant eds., 2004)](https://papers.ssrn.com/abstract=571382)  
 _Families of Prisoners_, _in_ Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)  
 
 ### JOURNAL PUBLICATIONS  
-[_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)](https://papers.ssrn.com/abstract=4877510) (with Aaron Regunberg, Cindy Cho, and David Arkush)  
+[_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)]() (with Aaron Regunberg, Cindy Cho, and David Arkush)  
 [_Prosecutors in the Passing Lane_, 61 UCSD L. Rev. 87 (2024)](https://papers.ssrn.com/abstract=4929207)  
 [_Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)](https://papers.ssrn.com/abstract=4335779) (with Aaron Regunberg, Cindy Cho, and David Arkush)  
 [_Geoengineering and Climate Change Polarization: Testing a Two-channel Model of Science Communication_, Aɴɴ. Aᴍ. Aᴄᴀᴅ. Pᴏʟ. & Sᴏᴄ. Sᴄɪ. (2015)](https://papers.ssrn.com/abstract=1981907) (with Dan M. Kahan, Hank C. Jenkins-Smith, Tor Tarantola & Carol L Silva)  
