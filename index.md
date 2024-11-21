@@ -76,7 +76,7 @@ Mellon Fellowship for Anthropological Research 1995
 ### JOURNAL PUBLICATIONS  
 [_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)]() (with Aaron Regunberg, Cindy Cho, and David Arkush)  
 [_Prosecutors in the Passing Lane_, 61 UCSD L. Rev. 87 (2024)](https://papers.ssrn.com/abstract=4929207)  
-[_Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)](https://papers.ssrn.com/abstract=4335779) (with Aaron Regunberg, Cindy Cho, and David Arkush)  
+[_Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)](https://papers.ssrn.com/abstract=4335779) (with David Arkush)  
 [_Geoengineering and Climate Change Polarization: Testing a Two-channel Model of Science Communication_, Aɴɴ. Aᴍ. Aᴄᴀᴅ. Pᴏʟ. & Sᴏᴄ. Sᴄɪ. (2015)](https://papers.ssrn.com/abstract=1981907) (with Dan M. Kahan, Hank C. Jenkins-Smith, Tor Tarantola & Carol L Silva)  
 [_The Polarizing Impact of Science Literacy and Numeracy on Perceived Climate Change Risks_, Nᴀᴛ. Cʟɪᴍ. Cʜɴɢ. (2013)](https://papers.ssrn.com/abstract=2193133) (with Dan M. Kahan, Ellen Peters, Maggie Wittlin, Paul Slovic, Lisa Ouelette & Gred Mandel)  
 [_Judicial Backlash or Just Backlash? Evidence from a National Experiment_, 112 Cᴏʟᴜᴍ. L. Rᴇᴠ. (2012)](https://papers.ssrn.com/abstract=1942282) (with David Fontana)  
