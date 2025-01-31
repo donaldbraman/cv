@@ -74,7 +74,7 @@ Mellon Fellowship for Anthropological Research 1995
 [_Families of Prisoners_, _in_ Invisible Punishment: The Collateral Consequences of Mass Imprisonment (Marc Mauer & Meda Chesney-Lind eds., 2002)](https://papers.ssrn.com/abstract=4955815)  
 
 ### JOURNAL PUBLICATIONS  
-[_Causing or Risking Climate Catastrophe_, NYU L. Rev. (Online) (forthcoming 2024)]() (with Aaron Regunberg, Cindy Cho, and David Arkush)  
+[_Causing or Risking Climate Catastrophe_, NYU Env. L. Rev. (2024)](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=5059570) (with Aaron Regunberg, Cindy Cho, and David Arkush)  
 [_Prosecutors in the Passing Lane_, 61 UCSD L. Rev. 87 (2024)](https://papers.ssrn.com/abstract=4929207)  
 [_Climate Homicide: Prosecuting Big Oil For Climate Deaths_, 48 Harv. Env. L. Rev. 45 (2024)](https://papers.ssrn.com/abstract=4335779) (with David Arkush)  
 [_Geoengineering and Climate Change Polarization: Testing a Two-channel Model of Science Communication_, Aɴɴ. Aᴍ. Aᴄᴀᴅ. Pᴏʟ. & Sᴏᴄ. Sᴄɪ. (2015)](https://papers.ssrn.com/abstract=1981907) (with Dan M. Kahan, Hank C. Jenkins-Smith, Tor Tarantola & Carol L Silva)  
